@@ -1,4 +1,4 @@
 ### Dae 🤙
 
 - Estou estudando...
-![](https://tenor.com/pt-BR/view/realistic-cat-smurf-meme-funny-gif-5895795080802392404)
+![](https://media.tenor.com/UdISY4O42VQAAAAd/realistic-cat.gif)
